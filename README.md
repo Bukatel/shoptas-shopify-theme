@@ -1,0 +1,1 @@
+# shoptas-shopify-theme
